@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sammonterey!
+- 👀 I’m interested in exploring new technologies, traveling, and learning about different cultures.
+- 🌱 I’m currently learning Python programming and dabbling in machine learning.
+- 💞️ I’m looking to collaborate on projects related to sustainability or education.
+- 📫 You can reach me via email at sam.monterey1011@gmail.com 
+- 😄 Pronouns: She/hers
+- ⚡ Fun fact: ! Whenever I'm in the shower, I find myself singing R&B and pop tunes at the top of my lungs. It's like having my own private concert, where I channel my inner Ariana Grande or Bruno Mars and hit all the high notes! 🎤🚿
